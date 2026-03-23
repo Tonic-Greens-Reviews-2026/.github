@@ -3,7 +3,7 @@
 [<img width="800" height="600" alt="TonicGreens Banner" src="https://github.com/user-attachments/assets/0452e2c6-0ce3-440a-938b-f6d4ae21f181" />
 ](https://tonicgreens.cc/vsl1/#aff=Shaheen86)
 
-[<img width="381" height="60" alt="Screenshot 2026-02-13 235553" src="https://github.com/user-attachments/assets/33ebe701-3cab-42a5-82ab-f8fa588f8692" />
+[<img width="288" height="70" alt="Screenshot 2026-02-26 222924" src="https://github.com/user-attachments/assets/c10e70c6-badc-4054-b207-032cdda58642" />
 ](https://tonicgreens.cc/vsl1/#aff=Shaheen86)
 
 **Tonic Greens Reviews** – Real user feedback, benefits, ingredients, side effects, and expert insights to help you decide if Tonic Greens works.
